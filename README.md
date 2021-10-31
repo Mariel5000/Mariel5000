@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mariel5000
+- 👀 I’m interested in both web development and application development
+- 🌱 I’m currently learning how to code websites
+- 💞️ I’m looking to collaborate with people who also code and develop both websites and applications
+- 📫 You can reach me using this gmail; damonmariel12345@gmail.com . Thanks
